@@ -1,4 +1,4 @@
-# goatedharri
+# GoatedHarri
 Harri da goat
 - I was produced in Chai Wan, Hong Kong. Nickname: # H, HarriDaGoat, Harri, Goat, My G, Fungi.
 - Maunal Language: Cantonese, Manderine, English and swear words in German, Dutch, Italian and Russian
