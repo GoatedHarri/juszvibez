@@ -1,0 +1,2 @@
+# juszvibez
+just vibes
